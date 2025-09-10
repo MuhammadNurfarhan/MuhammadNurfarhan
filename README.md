@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **mnfarhanz29@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10fXg5eVFWtBtEIYTxZ8qxDC2y8ko9VCm/view?usp=sharing](https://drive.google.com/file/d/10fXg5eVFWtBtEIYTxZ8qxDC2y8ko9VCm/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/10fXg5eVFWtBtEIYTxZ8qxDC2y8ko9VCm/view?usp=sharing](https://drive.google.com/file/d/1jd2pi54micqtsVr1T3x_MfycuQOPHHvv/view?usp=sharing)
 
 - ⚡ Fun fact **I think I'm good at badminton and football**
 
